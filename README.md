@@ -1,2 +1,2 @@
 # Git_story
-Git Exersize
+Git Exercize
