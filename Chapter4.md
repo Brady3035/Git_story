@@ -15,4 +15,4 @@ In front of him was a man, and in front of this man was a piano.
 The man's hands flew across the keys as elegantly as a classical dancer would move during performance. 
 Pickles, still unable to bark due to his hunger, let out a loud "bork" and the man suddenly stopped playing the piano.
 "HOly crap dawg lets make some beats togehter my name is Earl!"
-The end i got bored.
+The end, i got bored.
